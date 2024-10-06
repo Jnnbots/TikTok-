@@ -13,4 +13,24 @@
 
 ✅所有算法均已更新（gorgon、khronos、landon、argus mssdk……）
 
-➡️contact me: https://t.me/johnreal01
+# contact
+https://t.me/johnreal01
+
+# Créateur de compte TikTok
+
+Créez un nombre illimité de comptes TikTok et vérifiez par e-mail, courrier temporaire ou vérification téléphonique
+
+ ✅Solveur de code de vérification
+
+ ✅Enregistrement et activation de l'appareil
+
+ ✅Pas d'interdiction fantôme
+
+ ✅Téléchargeur/Suivre/J'aime/Commentaire/Signaler Bot
+
+ ✅Plateforme API : Android, iOS, Web
+
+ ✅Tous les algorithmes ont été mis à jour (gorgon, khronos, landon, argus mssdk...)
+
+ # contact
+ https://t.me/johnreal01
